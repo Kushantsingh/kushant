@@ -1,1 +1,1 @@
-# kushant singh is great
+# kushant singh is great on master
